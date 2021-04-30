@@ -1,2 +1,1 @@
-# V3LOGBOT
-log bot
+LOG BOT BB KKKK
